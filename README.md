@@ -94,7 +94,7 @@ Preview ini hanya **3 dari 17+ file** yang tersedia!
 
 ## 🛒 BELI SEKARANG
 
-[![Beli Sekarang](https://img.shields.io/badge/BELI_FULL_VERSION-Rp_79.000-success?style=for-the-badge)](https://lynk.id/detanieltech)
+[![Beli Sekarang](https://img.shields.io/badge/BELI_FULL_VERSION-Rp_79.000-success?style=for-the-badge)](https://lynk.id/detanieltech/j5kp740qx4zp)
 
 Atau kunjungi: **https://lynk.id/detanieltech**
 
